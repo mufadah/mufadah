@@ -1,5 +1,5 @@
 # 💫 About Me:
-Study on Politeknik Negeri 
+Study on Politeknik Negeri Semarang 
 
 
 ## 🌐 Socials:
